@@ -4,9 +4,16 @@ Boardman, OH 44512 ◆ (330) 559-6866 ◆ <djsellers17@gmail.com> ◆ [Portfolio
 --------
 
 ## Education
-GEORGIA INSTITUTE OF TECHNOLOGY (Online)  (12/2025)
+
+GEORGIA INSTITUTE OF TECHNOLOGY (Online)  (12/2027)
+*Doctorate in Strategic Leaderhip**  
+Area of Study: Business
+
+2023 - 2025
+GEORGIA INSTITUTE OF TECHNOLOGY (Online)
 **Masters in Cybersecurity (Information Security Track)**  
 Area of Study: Cybersecurity
+GPA 3.83/4.0
 
 2023 - 2024
 LOUISIANA STATE UNIVERSITY SHREVEPORT (Online)  

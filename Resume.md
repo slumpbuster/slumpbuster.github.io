@@ -13,7 +13,7 @@ Area of Study: Business
 GEORGIA INSTITUTE OF TECHNOLOGY (Online)
 **Masters in Cybersecurity (Information Security Track)**  
 Area of Study: Cybersecurity
-GPA 3.83/4.0
+GPA 3.81/4.0
 
 2023 - 2024
 LOUISIANA STATE UNIVERSITY SHREVEPORT (Online)  
